@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mariahacs10
-- 👀 I’m interested in ... compuer science duh
+- 👀 I’m interested in ... computer science duh
 - 🌱 I’m currently learning ...  as much as I can 
 - 💞️ I’m looking to follow my big brothers footsteps!
 - 📫 
